@@ -69,5 +69,5 @@ The anime consists of multiple seasons, with each season containing a specific n
 
 The anime is available for streaming on platforms like Crunchyroll, Funimation, and others.
 
-For more information, you can visit [86 on Netflix](https://example.com/86-anime).
+For more information, you can visit [86 on Netflix](https://www.youtube.com/watch?v=dQw4w9WgXcQ).
 
